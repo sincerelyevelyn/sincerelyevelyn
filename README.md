@@ -4,8 +4,8 @@
 
                                                   ᴡᴇ'ʀᴇ ᴀʟᴡᴀʏꜱ ᴛᴏɢᴇᴛʜᴇʀ,
                                                    ᴡᴇ'ʀᴇ ᴏɴᴇ ᴏꜰ ᴀ ᴋɪɴᴅ.
-                                                ᴛʜʀᴇᴇ ᴡᴏʀᴅꜱ ᴛᴏ ᴅᴇꜱᴄʀɪʙᴇ,
-                                                   ᴘᴀʀᴛɴᴇʀꜱ ɪɴ ᴄʀɪᴍᴇ
+                                                 ᴛʜʀᴇᴇ ᴡᴏʀᴅꜱ ᴛᴏ ᴅᴇꜱᴄʀɪʙᴇ,
+                                                    ᴘᴀʀᴛɴᴇʀꜱ ɪɴ ᴄʀɪᴍᴇ.
 
 
  Ily guys to the moon and back. Always the only scootie and sweetie to my apple bloom. <3 
