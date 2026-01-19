@@ -1,11 +1,18 @@
 
-
-<img width="1036" height="616" alt="image" src="https://github.com/user-attachments/assets/6a401e2e-2550-4c65-a13d-008641c25490" />
-
-                                                  ᴡᴇ'ʀᴇ ᴀʟᴡᴀʏꜱ ᴛᴏɢᴇᴛʜᴇʀ,
-                                                   ᴡᴇ'ʀᴇ ᴏɴᴇ ᴏꜰ ᴀ ᴋɪɴᴅ.
-                                                 ᴛʜʀᴇᴇ ᴡᴏʀᴅꜱ ᴛᴏ ᴅᴇꜱᴄʀɪʙᴇ,
-                                                    ᴘᴀʀᴛɴᴇʀꜱ ɪɴ ᴄʀɪᴍᴇ.
+                                                              ⟡ 
+                                                  
+⟢                                                  ʙᴜᴛ ᴡɪᴛʜ ʟᴏᴠᴇ ᴄᴏᴍᴇꜱ ʟᴏꜱꜱ,
+                                                   ɪᴛ'ꜱ ᴀʟʟ ᴘᴀʀᴛ ᴏꜰ ᴛʜᴇ ᴅᴇᴀʟ.
 
 
- Ily guys to the moon and back. Always the only scootie and sweetie to my apple bloom. <3 
+
+<img width="1200" height="510" alt="image" src="https://github.com/user-attachments/assets/379e4cab-d750-4c89-b376-64cbbf992705" />
+
+
+                                                                 ☆
+                                                                 .
+                                                                 ☆
+                                                      ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɪᴛ ʜᴜʀᴛꜱ,
+                                              ʙᴜᴛ ɪɴ ᴛʜᴇ ᴇɴᴅ, ɪᴛ'ꜱ ᴀʟʟ ᴡᴏʀᴛʜ ɪᴛ.
+
+                                             🐉    𝙏𝙝𝙚𝙧𝙚 𝙞𝙨 𝙣𝙤 𝙜𝙧𝙚𝙖𝙩𝙚𝙧 𝙜𝙞𝙛𝙩 𝙩𝙝𝙖𝙣 𝙡𝙤𝙫𝙚    🏹
