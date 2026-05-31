@@ -11,7 +11,7 @@
 <p align="center"> <a href="https://visitorbadge.io/status?path=sincerelyevelyn"><img src="https://api.visitorbadge.io/api/visitors?path=sincerelyevelyn&label=members%20of%20cair%20paravel&labelColor=%23526f9c&countColor=%237591bd&style=flat" /></a>
 
 
-<p align="center"> <a href=https://evelynhofferson.straw.page/> straw</a>  <a href=https://guns.lol/sincerelyevelyn> guns </a>
+<p align="center"> <a href=https://evelynhofferson.straw.page/> straw</a> .  <a href=https://guns.lol/sincerelyevelyn> guns </a> . <a href=https://eternalx.atabook.org/> ata
 
 
 
