@@ -1,7 +1,7 @@
 
 
 
-<p align="center"> ${\textsf{\color{#09359A} i've got a war}}$ ${\textsf{\color{#BEE3F9}in my mind.}}$
+<p align="center"> ${\textsf{\color{#B4B7B8} in the right eyes,}}$ ${\textsf{\color{#74787A}you'll always be art.}}$
 
 
 <p align="center"> </a> <img width="200" height="113" alt="image" src="https://github.com/user-attachments/assets/79e2886f-9438-4c45-b33d-0a1e445a32b8" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/0c055a91-c6dc-4f5c-9725-cdc0c02fbfc3" /> <img width="200" height="113" alt="image" src="https://github.com/user-attachments/assets/edcd3a64-1d51-4ea9-95de-ebfa350c9f8f" />
@@ -17,7 +17,7 @@
 
 
 
-<p align="center"> ${\textsf{\color{#BEE3F9} but even a traitor can mend.}}$ ${\textsf{\color{#09359A}i know one who did. }}$
+<p align="center"> ${\textsf{\color{#74787A} for with love,}}$ ${\textsf{\color{#B4B7B8}comes loss. }}$
 
 
 
